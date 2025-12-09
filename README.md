@@ -1,1 +1,1 @@
-# szymonr.github.io
+# szymonr
